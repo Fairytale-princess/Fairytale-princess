@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Nekia Watson @Fairytale-princess
+- 👋 Hi, I’m Nekia Watson aka facebook's Napoleon @Fairytale-princess
 - 👀 I’m interested in understanding all mankind
 - 🌱 I’m currently learning reading is very important
 - 💞️ I’m looking to collaborate on groups and running a business
